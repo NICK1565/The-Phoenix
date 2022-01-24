@@ -1,4 +1,4 @@
-The-Phoenix is a mytholical bird existing in custom and traditions of ancient people able to control fire and live again from own ashes.
+The-Phoenix is a mythological bird existing in custom and traditions of ancient people able to control fire and live again from own ashes.
 The comparison is regarded to actual time in which pandemic is impacting seriously various aspect of human  life and a number of  industries.
 One of this is the commercial aviation in which many airlines are suffering. Before pandemic, in 2019, passengers that flew domestically and internationally worldwide were around 4 bilion.
 This That was a record data representing about the half of whole popolation of Earth!
