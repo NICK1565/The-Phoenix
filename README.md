@@ -1,4 +1,4 @@
-#The idea and background:
+##The idea and background:
 The Phoenix is a mythological bird existing in the habits  and traditions of ancient people able to control fire and live again from its own ashes.
 The comparison is regarded to actual time in which pandemic is impacting seriously various aspect of human life and a number of business sectors, accordingly!
 Data:
@@ -17,4 +17,4 @@ Here is the concept of the Phoenix again. To live again longer and better!
 What next: 
 Future generations will have to  face bigger troubles if some crucial knots are not solved as soon as possible!
 Ackowledgements:
-Airline and tourism leading players consulted personally along with Trade Newspapers, job relation, case histories, conferences, studies atc.#
+Airline and tourism leading players consulted personally along with Trade Newspapers, job relation, case histories, conferences, studies atc.
