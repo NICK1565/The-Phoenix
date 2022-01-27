@@ -17,4 +17,4 @@ Here is the concept of the Phoenix again. To live again longer and better!
 What next: 
 Future generations will have to  face bigger troubles if some crucial knots are not solved as soon as possible!
 Ackowledgements:
-Airline and tourism leading players consulted personally along with Trade Newspapers, job relation atc.
+Airline and tourism leading players consulted personally along with Trade Newspapers, job relation, case histories, conferences, studies atc.
