@@ -1,4 +1,4 @@
-#The idea and background:
+##The idea and background:
 The Phoenix is a mythological bird existing in the habits  and traditions of ancient people able to control fire and live again from its own ashes.
 The comparison is regarded to actual time in which pandemic is impacting seriously various aspect of human life and a number of business sectors, accordingly!
 Data:
